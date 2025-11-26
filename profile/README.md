@@ -1,1 +1,1 @@
-![moodi-graphic](https://github.com/user-attachments/assets/a8a58349-0e72-4876-971d-6ab2f304103b)
+![moodi-graphic](https://github.com/user-attachments/assets/8e426f81-6902-4a4c-a735-9617c6b297e7)
